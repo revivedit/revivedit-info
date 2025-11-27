@@ -8,7 +8,8 @@ All devices are fully refurbished and tested in-house. We offer custom configura
 https://revivedit.com.au/
 
 ### Contact
-Email: info@revivedit.com.au  
+Phone: 08 8101 0345
+Email: sales@revivedit.com.au  
 Location: Adelaide, South Australia
 
 ### About Us
